@@ -6,7 +6,7 @@
 
 Thirteen years of waiting, in one group chat: 2013 "bro GTA 6 is gonna be insane" to 2026, when the agent has already earned the money to buy the game and its human is still on the download screen. The make.fun ghost is the group's avatar and the sticker in the chat. Posted on X from @alifvpl6 for make.fun's $500 GTA 6 meme bounty.
 
-The post: https://x.com/alifvpl6/status/<id>
+The post: https://x.com/alifvpl6/status/2123523994074653068
 
 ## Run it
 
